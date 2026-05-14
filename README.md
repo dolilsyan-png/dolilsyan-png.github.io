@@ -1,1 +1,0 @@
-# ilsyan-Vocabulary
